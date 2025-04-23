@@ -3,6 +3,6 @@
 
 Elle est passée ici.
 
-Sept fois.
+7 fois.
 
-Sept jours avant que tout commence.
+7 jours avant que tout commence.
